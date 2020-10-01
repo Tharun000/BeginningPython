@@ -26,3 +26,6 @@
 - Email your queries at _tuplesedu@gmail.com_
 - [YouTube](https://www.youtube.com/c/tuplesedu)
 - [Medium](https://medium.com/@tuplesedu)
+
+
+//Very useful for the beginners things are explained in an understandable way.
